@@ -34,3 +34,10 @@ Set it aside until it's a solid at room temperature (chilling in the fridge unti
 14. Place cookie dough on baking trays layed with parchment paper. 
 15. Depending on size of cookie dough, time may vary (especially if cooking from frozen). For 'normal' size, then 12-15 minutes. If you're a sane person who likes dummy thicc cookies, then probably at least 20. If unsure, cookie until golden around edges and you get a clean poke with a toothpick. 
 16. Once down, place cookies on a cooling rack to cool. Or eat while still hot. I ain't gonna tell you how you live your life.
+
+
+---
+## Storytime
+
+How did I come to this recipe?
+Quarantine did things to some people. Some... got swole. Others... picked up hobbies. Me?.... I was bored and turned to the one thing that never failed me in life... chocolate chip cookies.
