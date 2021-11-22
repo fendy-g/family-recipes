@@ -5,7 +5,6 @@
 How did I come to this recipe?
 Quarantine did things to some people. Some... got swole. Others... picked up hobbies. Me?.... I was bored and turned to the one thing that never failed me in my life... chocolate chip cookies.
 
---------
 
 ## **Ingredients**
 * 1 cup butter (2 sticks)
