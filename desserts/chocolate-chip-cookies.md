@@ -21,7 +21,6 @@ Quarantine did things to some people. Some... got swole. Others... picked up hob
 * 2 egg yolks
 * CHOCOLATE - however much and whatever kind of chocolate your heart desires (I use a mix of semi-sweet and dark)
 
---------
 ## **Instructions**
 
 1. BROWN YO BUTTER. Once browned (and the water has boiled out), turn off heat, mix in the heavy cream (be prepared for it to foam up... mix like your life depends on it). 
