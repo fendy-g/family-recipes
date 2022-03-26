@@ -35,7 +35,7 @@ Set it aside until it's a solid at room temperature (chilling in the fridge unti
 10. Let cookie dough rest/chill in the fridge for a bit.
 11. Take cookie dough out of the fridge, and start forming the cookie dough into tall balls of preferred thiccness (if 'Fro feels a disturbance in the force, you're doing it properly)
 12. For *optimal* flavor, we will want to let them rest in the fridge longer... put them in a plastic bag or some other container and put them in the fridge. If you want to only bake them in small batches, you can place them in the freezer.
-13. If you're impatient (or it's been at least a day), pre-heat the oven to 350 degrees. 
+13. If you're impatient (or it's been at least a day), pre-heat the oven to 350 degrees. If you're wanting to make larger cookies, preheat to 400. 
 14. Place cookie dough on baking trays layed with parchment paper. 
-15. Depending on size of cookie dough, time may vary (especially if cooking from frozen). For 'normal' size, then 12-15 minutes. If you're a sane person who likes dummy thicc cookies, then probably at least 20. If unsure, cookie until golden around edges and you get a clean poke with a toothpick. 
+15. Depending on size of cookie dough, time may vary (especially if cooking from frozen). For 'normal' size, then 12-15 minutes. If you're a sane person who likes dummy thicc cookies, then it'll be 10-15 minutes with the oven at 400 degrees. If unsure, cookie until golden around edges and you get a clean poke with a toothpick. 
 16. Once down, place cookies on a cooling rack to cool. Or eat while still hot. I ain't gonna tell you how you live your life.
