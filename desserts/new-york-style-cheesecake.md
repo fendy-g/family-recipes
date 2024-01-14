@@ -34,6 +34,6 @@ Bake 1 hour & 10 minutes. Turn oven off and let cake sit in oven with door propp
 #### Topping
 Blend sugar and cornstarch together in a small saucepan. Stir in water and strawberries. Cook, stirring constantly, until the mixture thickens and boils. Boil & stir for 1 minute. Cool thoroughly before spreading over cheesecake. 
 
-\* Any kind of crumbs can be used, including chocolate cooking crumbs or chopped nuts.
-\** Can use up to 8 oz. of additional cream cheese.
+\* Any kind of crumbs can be used, including chocolate cooking crumbs or chopped nuts.\
+\** Can use up to 8 oz. of additional cream cheese.\
 \*** Can add an extra 8 oz. sour cream.
