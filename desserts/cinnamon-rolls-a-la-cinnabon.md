@@ -1,40 +1,38 @@
 Courtesy of Kanden, who - through a ton of time and a long string of expletives - has perfected this recipe. 
 
-Dough ingredients:
-Buttermilk - 1/4 cup
-Egg - 1
-Butter - 1 stick
-Graunlated sugar (regular ass white sugar, not turbinado) - 1/2 cup
-Actice dry yeast (rapid rise preferred) - 2 1/4 tsp 
-Water (warm) - 3/4 cup
-Canola oil (*not* olive) - 1/3 cup
-Bread flour - 1 cup
-All-purpose flour - 1 cup + 5 extra cups (separate the two measurements)
-Super fine salt (not pink, not sea, just finely grained regular table salt) - 1 tsp
-Canola cooking spray (not coconut oil or olive oil)
-Dark brown sugar - 1 1/2 cups
-Cinnamon - 3 tablespoons
-Cornstarch - 2 tablespoons
+
+### Dough ingredients:
+* Buttermilk - 1/4 cup
+* Egg - 1
+* Butter - 1 stick
+* Graunlated sugar (regular ass white sugar, not turbinado) - 1/2 cup
+* Actice dry yeast (rapid rise preferred) - 2 1/4 tsp 
+* Water (warm) - 3/4 cup
+* Canola oil (*not* olive) - 1/3 cup
+* Bread flour - 1 cup
+* All-purpose flour - 1 cup + 5 extra cups (separate the two measurements)
+* Super fine salt (not pink, not sea, just finely grained regular table salt) - 1 tsp
+* Canola cooking spray (not coconut oil or olive oil)
+* Dark brown sugar - 1 1/2 cups
+* Cinnamon - 3 tablespoons
+* Cornstarch - 2 tablespoons
 
 
+### Icing ingredients:
+* Cream cheese - Full Fat - 4 oz (room temperature)
+* Butter - 4 oz (room temperature)
+* Vanilla extract - 1 tablespoon
+* Corn syrup - 1 tablespoon
+* Lemon juice - 1 tablespoon
+* Powdered sugar - 2 1/2 cups 
 
-Icing ingredients:
-Cream cheese - Full Fat - 4 oz (room temperature)
-Butter - 4 oz (room temperature)
-Vanilla extract - 1 tablespoon
-Corn syrup - 1 tablespoon
-Lemon juice - 1 tablespoon
-Powdered sugar - 2 1/2 cups (
 
+# Baking instructions
 
-# To get ready before actual baking:
+## To get ready before actual baking:
 1. Measure out 1/4 cup of buttermilk and one egg and bring to room temperature - takes roughly an hour (butter should be super soft, buttermilk should not feel cold in a glass or metal measuring cup)
 
-# Icing
-1. Bring cream cheese and butter to room temperature
-2. 
-
-# Making the dough:
+## Making the dough:
 1. Measure out 1/2 cup of sugar
 2. Scoop out 1 tablespoon of the measured sugar and put that in the bowl of a stand mixer
 3. Add 2 & 1/4 tsp of yeast and 3/4 cup of warm water to the stand mixer bowl with the sugar
@@ -48,9 +46,6 @@ Powdered sugar - 2 1/2 cups (
  - General rule is to never go over 5 cups of flour, but it’s more important that the dough is not sticking to the bowl or your fingers, that’s a sign that it has just enough flour
 10. Once dough has reached the right amount of flour, set your mixer to the 1st speed above stir, knead for 3 mins, then set back to stir for 3 mins
 11. Take dough out of the bowl, spray bowl with canola cooking spray, put dough back into bowl, and cover with plastic wrap and a clean dish cloth, and set aside to rise for NO MORE THAN 2 HOURS - do not overproof the first proof. The plastic wrap is so you can take the dish cloth off to check it often without disturbing it. Dough should double in size
-
-now to make the rolls for second proof
-13. Once done pr
 12. After proofing, roll out the proofed dough into a big square until it’s about half a finger-width tall. Use flour to help it stop from sticking to the counter (this is why we don’t want to over-add flour in the mixing stage, it will pick up some flour here)
 13. In a medium mixing bowl, mix packed dark brown sugar, cinnamon, and cornstarch (helps keep the icing IN the rolls and not just melting out to make a cinnamon sugar cement at the bottom of the tray during baking). 
 - If you are getting chunks in your brown sugar, you can use a small strainer or sifter for the next stage
@@ -67,7 +62,7 @@ now to make the rolls for second proof
 21. When rolls are ready to bake, preheat oven to 350, and bake for 17-21 mins on a middle rack uncovered. WATCH THEM 
 - You want them lightly golden brown on the dough tops. Anything more and reheating rolls later in the week will be dry and crumbly
 
-# Icing (make as rolls are baking)
+## Icing (make as rolls are baking)
 1. Whip the room temp butter and cream cheese together with a whisk attachment for 5 mins. 
 - Texture should have visible air bubbles in it, it should be HELLA whipped
 2. Add vanilla extract, corn syrup, and lemon juice, and whip until incorporated, scraping down the sides of the bowl while doing so
