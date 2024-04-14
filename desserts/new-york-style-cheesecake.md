@@ -1,4 +1,5 @@
 # New York-Style Cheesecake
+* With credit to Amanda Bowman
 
 ## Ingredients
 ### *Crust*
