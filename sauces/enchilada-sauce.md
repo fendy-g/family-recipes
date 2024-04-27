@@ -1,5 +1,6 @@
 # Chef Jon's enchilada sauce:
 
+### Ingredients
 * 2 tablespoons olive oil
 * 2 tablespoons butter
 * 1/2 cup diced onion
@@ -16,6 +17,7 @@
 * 2 tablespoons tomato paste
 * 2 1/2 cups chicken broth (COLD if you can help it)
 
+### Instructions
 1. Toss olive oil and butter in pot/skillet/saucier over medium heat. You can just use either oil or butter if you don't wanna add em both.
 2. When melted, add onions and generous pinch of salt. Cook for 4-5 minutes, or until the smallest pieces of onion start to turn golden brown.
 3. Roux time - toss in the flour, chili powder, cumin, chipotle pepper, black pepper, oregano, cayene, and cinnamon. Stir and cook for 3-4 minutes
