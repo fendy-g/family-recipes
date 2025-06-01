@@ -17,7 +17,7 @@
 ### Day 2 (evening) *or* any day later:
 #### Cinnamon sugar topping
 * 2 sticks unsalted butter
-* 200 grams brown sugar
+* 200 grams dark brown sugar
 * 3 tbsp ground cinnamon
 * 1/2 tsp vanilla extract
 
@@ -52,7 +52,7 @@
 2. We will now start making the cinnamon sugar filling.
 3. In a sauce pan, melt the butter.
 4. Once butter is melted, add brown sugar, cinnamon, and vanilla. Mix until heated through and combined. Turn off heat. Let the mixture cool down 
-  * You could put this over an ice bax and mix it to cool it down quicker, or just manually wait.
+  * You could put this over an ice bath and mix it to cool it down quicker, or just manually wait.
 5. In either a greased/buttered sheet pan or in the bowl with the proofed dough (if it's big enough), you will want to pour the cinnamon sugar mixture onto the dough.
 6. From there, tuck and fold to ensure that the cinnamon mixture not only coats the top and bottom, but also has layers of it within the bread.
   * This could potentially be done at the end of the previous section, but I have not tested it personally)
