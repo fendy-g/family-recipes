@@ -11,4 +11,4 @@
 
 ### Directions
 
-Preheat oven to 350F (325F for glass dish). Melt margarine or butter and add to graham cracker crumbs; mix to combine. Press buttered crumbs into the bottom of the baking dish. Pour sweetened condensed milk evenly over crumbs. Top evenly with remaining ingredients; press down firmly. Bake 25-30 minutes or until coconut is lightly browned. Cool thoroughly before cutting. Store at room temperature, loosely covered.
+Preheat oven to 350F (325F for glass dish). Melt margarine or butter and add to graham cracker crumbs; mix to combine. Press buttered crumbs into the bottom of a 9"x13" baking dish. Pour sweetened condensed milk evenly over crumbs. Top evenly with remaining ingredients; press down firmly. Bake 25-30 minutes or until coconut is lightly browned. Cool thoroughly before cutting. Store at room temperature, loosely covered.
