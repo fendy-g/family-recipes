@@ -4,7 +4,7 @@
 
 - 1/2 cup margarine or butter
 - 1 1/2 cups graham cracker crumbs
-- 1 (14-oz) can sweetened condensed milk (Eagle Brand)
+- 1 (14-oz) can sweetened condensed milk (I've historically used Eagle Brand)
 - 1 (6-oz) package semi-sweet chocolate morsels (or 1 cup)
 - 1 (3 1/2-oz) can flaked coconut (or 1 1/2 cups)
 - 1 cup chopped nuts
